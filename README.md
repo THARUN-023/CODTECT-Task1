@@ -22,10 +22,10 @@ JavaScript.
 **wordpress devt**<br>
 **video editing**<br>
 
-**![Screenshot (31)](https://github.com/user-attachments/assets/2e70e3be-b14d-49b3-afa2-d63a89e35d1d)** 
+**![Screenshot (31)](https://1drv.ms/i/c/3ee4db3b42795edb/Ee9acYH1zgtCt-1ltv8iXQIBJQlxp29zDGS4gC_51rrnHA?e=6Mddld)** 
 
-**![Screenshot (32)](https://github.com/user-attachments/assets/c872b520-ded7-4e2c-b35c-0f88cf712987)** 
+**![Screenshot (32)](https://1drv.ms/i/c/3ee4db3b42795edb/EQqTsI2kfnpJk7u7GWBMlOIBgLfDLO5tBhEbKb1BGxaBng?e=x03pae)** 
 
-**![Screenshot (33)](https://github.com/user-attachments/assets/0c996e25-9fd4-4529-92d3-34de031925c8)**
-**![Screenshot (34)](https://github.com/user-attachments/assets/1b5e8359-1f83-43c7-ab8e-b2e0e382bfe4)**
-**![Screenshot (35)](https://github.com/user-attachments/assets/4baf9204-b29d-47fb-a5a9-c154a7f10db0)**
+**![Screenshot (33)](https://1drv.ms/i/c/3ee4db3b42795edb/ESaAFiWqJfBDprB37AUqFTYBVkoDL__Ka2JEsYarzY8BlA?e=J7TbFb)**
+**![Screenshot (34)](https://1drv.ms/i/c/3ee4db3b42795edb/EfZdLVmqKKFNlT_E2PFT47sBQfxG2SNaASHZkqyUy4Qpgg?e=FyJlWd)**
+**![Screenshot (35)](https://1drv.ms/i/c/3ee4db3b42795edb/EV3fPDDzMwVCh56JJpR486IByYefLhysY6kNsvgHh3DMCw?e=JTxHkV)**
