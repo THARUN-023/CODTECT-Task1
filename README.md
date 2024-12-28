@@ -22,10 +22,5 @@ JavaScript.
 **wordpress devt**<br>
 **video editing**<br>
 
-**![Screenshot (31)](https://1drv.ms/i/c/3ee4db3b42795edb/Ee9acYH1zgtCt-1ltv8iXQIBJQlxp29zDGS4gC_51rrnHA?e=6Mddld)** 
-
-**![Screenshot (32)](https://1drv.ms/i/c/3ee4db3b42795edb/EQqTsI2kfnpJk7u7GWBMlOIBgLfDLO5tBhEbKb1BGxaBng?e=x03pae)** 
-
-**![Screenshot (33)](https://1drv.ms/i/c/3ee4db3b42795edb/ESaAFiWqJfBDprB37AUqFTYBVkoDL__Ka2JEsYarzY8BlA?e=J7TbFb)**
-**![Screenshot (34)](https://1drv.ms/i/c/3ee4db3b42795edb/EfZdLVmqKKFNlT_E2PFT47sBQfxG2SNaASHZkqyUy4Qpgg?e=FyJlWd)**
-**![Screenshot (35)](https://1drv.ms/i/c/3ee4db3b42795edb/EV3fPDDzMwVCh56JJpR486IByYefLhysY6kNsvgHh3DMCw?e=JTxHkV)**
+**![Screenshot(1)](![Screenshot 2024-12-28 073535](https://github.com/user-attachments/assets/28cd1768-f9b9-4573-a453-ace9f75dbc64)
+)**
