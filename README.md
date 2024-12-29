@@ -1,4 +1,4 @@
-**Name:** THARUN <br>
+**Name:** V THARUN <br>
 **company:** CODTECH IT SOLUTIONS<br>
 **ID:** CT08ENC<br>
 **Domain:** Full stack Web Development<br>
